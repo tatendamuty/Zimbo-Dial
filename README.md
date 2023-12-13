@@ -1,6 +1,5 @@
 # Zimbo-Dial
 Privacy Policy
-Privacy Policy
 
 Effective Date: 12-12-2023
 
